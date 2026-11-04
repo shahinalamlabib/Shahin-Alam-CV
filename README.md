@@ -1,2 +1,0 @@
-# Shahin-Alam-CV
-CV 
